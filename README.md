@@ -20,10 +20,10 @@ Poster PDF:
 
 
 
-
 Related Posters:
 
-- C Microwave SCR resonator Coupled with Superfluid Thin-Film Surface Waves for Analogue Gravity Experiments
+- C Microwave SCR resonator Coupled with Superfluid Thin-Film Surface Waves for Analogue Gravity Experiments; C. Martinez Izquierdo
+  - https://linktr.ee/Carla_Martinez_Izquierdo   
 
 
 
