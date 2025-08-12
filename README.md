@@ -11,12 +11,14 @@ Do you want to be notified about the related paper publication on Arvix/Journal?
 https://forms.gle/gWjoK3kekzxPt7ri9
 
 
+LinkedIn: https://uk.linkedin.com/in/seanhibbitt
 
 Poster PDF:
 
   PDF:  [LT30 Poster - Sean Hibbitt.pdf](https://github.com/user-attachments/files/21710863/LT30.Poster.-.Sean.Hibbitt.pdf)
   
   Link:  https://www.dropbox.com/scl/fi/4ux7agjimmk0a6tu4hbe8/LT30-Poster-Sean-Hibbitt.pdf?rlkey=t84fi3ldnuob1yeexr8jk91k3&st=t1r8vsim&dl=0
+
 
 
 
